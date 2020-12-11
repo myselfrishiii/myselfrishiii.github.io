@@ -1,1 +1,0 @@
-# myselfrishiii.github.io
